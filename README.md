@@ -13,7 +13,7 @@
 
 
 
-# 2.Nord梯子   [Nord官网地址](https://sjmjstb.com/share.html?channel=s3)
+# 2.Nord梯子   [Nord官网地址]
 ✅ 推荐，老牌梯子，多次被评为No.1，超强加密，服务器节点5000+
 
 ✅ 最多人再次购买的梯子工具
@@ -25,7 +25,7 @@
 优势：不记录日志，网速稳定，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
 
-# 3.Ivacy梯子 [Ivacy官网地址](https://sjmjstb.com/share.html?channel=s3)
+# 3.Ivacy梯子 [Ivacy官网地址]
 ✅ 美国的品牌，在外网的评价非常好，TOP5的水平
 
 ✅ 网速很快，2019年的行业对比排第一
@@ -37,7 +37,7 @@
 优势：非常适合亚洲地区，在国内使用稳定，30天无理由退款
 
 
-# 4.Express梯子 [Express官网地址](https://sjmjstb.com/share.html?channel=s3)
+# 4.Express梯子 [Express官网地址](https://www.whjpmc.com/share.html?channel=s3)
 多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
 **注意** ：官方关闭了中国区镜像(产品牛逼就可以为所欲为吗~)，不影响购买后使用。因此需要先用其他可试用的梯子，才能打开官网
@@ -46,7 +46,7 @@
 
 
 
-# 5.Pure梯子 [Pure官网地址](https://sjmjstb.com/share.html?channel=s3)
+# 5.Pure梯子 [Pure官网地址]()
 香港品牌，超大带宽，直连通道，很多Mac使用它
 
 Pure没有中国区镜像，因此需要用其他可试用的梯子，才能打开官网
